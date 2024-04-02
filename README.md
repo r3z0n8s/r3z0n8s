@@ -6,6 +6,8 @@
 - 😄 Pronouns: ... She/her
 - ⚡ Fun fact: ... Any quote by Allan Watts
 
+- Weird Machine - DROELOE & Nevve
+
 <!---
 r3z0n8s/r3z0n8s is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
